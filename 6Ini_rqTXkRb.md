@@ -1,0 +1,1 @@
+<h2>AI革新教育模式引热议</h2><br>内容：人工智能技术正深度融入课堂教学，个性化学习成为可能。| 来源：www.sqrb.com.cn/content/2026-06/15/content_195731.html<br><h2>全球气候峰会达成新减排协议</h2><br>内容：多国承诺加强合作，共同应对气候变化挑战。| 来源：www.sqrb.com.cn/content/2026-06/15/content_195731.html<br><br>
