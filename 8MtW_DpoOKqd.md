@@ -1,0 +1,1 @@
+<h2>AI助手写小说获奖引争议</h2><br>作品在省级文学比赛中获奖，作者承认使用AI辅助创作，引发关于文学创作本质与伦理的讨论。<br>| 来源：www.sqrb.com.cn/content/2026-06/15/content_191135.html<br><br><h2>全球首例脑机接口患者康复出院</h2><br>因车祸瘫痪的患者通过植入式脑机接口系统，成功实现意念控制机械臂完成进食等动作，标志着该项技术取得重大突破。<br>| 来源：www.sqrb.com.cn/content/2026-06/15/content_191135.html<br>| 来源：www.sqrb.com.cn/content/2026-06/15/content_191135.html<br>
